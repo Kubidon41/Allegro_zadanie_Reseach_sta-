@@ -1,0 +1,1 @@
+# Allegro_zadanie_Reseach_sta-
